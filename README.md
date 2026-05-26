@@ -1,4 +1,5 @@
-## Hi there 👋
+<img src="https://media.discordapp.net/attachments/1228060130428584102/1508602472686555226/IMG_0523.gif?ex=6a162309&is=6a14d189&hm=62aac72c4dfa5e69413a71fa44cd9f89f81f080904c7028fafd81fb2827fead6&=" alt="Description of GIF" /> Please refrain from making suggestive comments towards me as I am uncomfortable with them! Headmate/Alter avatars have ' sys ' in their name, please keep that in consideration! <img src="https://media.discordapp.net/attachments/1228060130428584102/1508602472686555226/IMG_0523.gif?ex=6a162309&is=6a14d189&hm=62aac72c4dfa5e69413a71fa44cd9f89f81f080904c7028fafd81fb2827fead6&=" alt="Description of GIF" /> 
+
 
 <!--
 **Illuzukaaltar/Illuzukaaltar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
