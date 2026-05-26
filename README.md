@@ -3,7 +3,7 @@
 
 no specific DNI | I hide/block selectively 
 
-To get my attention please whisper me!
+⟡ To get my attention please whisper me!
 
 <!--
 **Illuzukaaltar/Illuzukaaltar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
